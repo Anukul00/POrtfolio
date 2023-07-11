@@ -1,2 +1,2 @@
 # Portfolio
-I done this for my one of the friend
+I done this for one of my the friend
